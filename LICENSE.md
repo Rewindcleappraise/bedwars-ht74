@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with bedwars best Scripts, the #1 Script. Includes fly and auto-heal for unbeatable performance.
 
 
 
